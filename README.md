@@ -1,1 +1,0 @@
-# technickhil.github.io
